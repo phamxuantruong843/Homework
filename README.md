@@ -10,3 +10,5 @@ Làm BT04 : https://docs.google.com/document/d/1Pp5r8r4kKcTpdrFZWJOjPv3McBOxCZTw
 Làm BT05 : https://docs.google.com/document/d/15BKxzroJicnepsqzM_MZHZIYOGHabj9CwC8C6muNuK8/edit?usp=sharing
 
 Làm BT06 : https://docs.google.com/document/d/1gIjJBIu3neSTMGQOqa85w2jA1L_Abs3JYx0mb0PQjN8/edit?usp=sharing
+
+Làm BT07 : https://docs.google.com/document/d/1IEH6ebQCPIC7uNOQ4T-tvof2Tu6gb80kGxUgg2wGfEg/edit?usp=sharing
